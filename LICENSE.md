@@ -1,4 +1,4 @@
-# 
+# Experience catch and tame like never before with no-ban Scripts for catch and tame, the #1 Script. Includes auto-collect and private server access
 
 
 
